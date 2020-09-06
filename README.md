@@ -2,7 +2,7 @@
 
 # reseaux : 
 
-- twitter <img src="images/twitter.png" > : [@gloubiboulgaah](https://twitter.com/gloubiboulgaah)
+- twitter <img src="images/twitter.png" width="15" > : [@gloubiboulgaah](https://twitter.com/gloubiboulgaah)
 - instagram : [@gloubiboulga.sh](https://www.instagram.com/gloubiboulga.sh)
 - discord :  [General La Squale | ϟϟ#1548](https://discord.gg/XNHYenX)
 - pornhub : [gloubiboulgasex](https://pornhub.com/users/gloubiboulgasex)
