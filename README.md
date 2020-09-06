@@ -3,6 +3,6 @@
 # reseaux : 
 
 - twitter <img src="images/twitter.png" width="15" > : [@gloubiboulgaah](https://twitter.com/gloubiboulgaah)
-- instagram : [@gloubiboulga.sh](https://www.instagram.com/gloubiboulga.sh)
-- discord :  [General La Squale | ϟϟ#1548](https://discord.gg/XNHYenX)
-- pornhub : [gloubiboulgasex](https://pornhub.com/users/gloubiboulgasex)
+- instagram <img src="images/instagram.png" width="15" > : [@gloubiboulga.sh](https://www.instagram.com/gloubiboulga.sh)
+- discord <img src="images/discord.png" width="20" >:  [General La Squale | ϟϟ#1548](https://discord.gg/XNHYenX)
+- pornhub <img src="images/pornhub.jpg" width="20" >: [gloubiboulgasex](https://pornhub.com/users/gloubiboulgasex)
